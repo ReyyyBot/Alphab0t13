@@ -4,24 +4,24 @@ return `PAYMENT BY ZEEONE OFC
 *🏧 BANK*
 
 1. BRI 
-	ㅁ 8881 0887 4350 47326
+	ㅁ g ada
 2. BCA 
-	ㅁ 3901 0887 4350 47326
+	ㅁ g ada
 3. BNI 
-	ㅁ 881 0887 4350 47326
+	ㅁ kosong y
 4. PERMATA
-	ㅁ 852 8887 4350 47326
+	ㅁ kosong y
 	
 *💰 E-MONEY*
 
 1. GOPAY
-	ㅁ 0887 4350 47326
+	ㅁ 0882 7157 8191
 2. OVO
-	ㅁ 0887 4350 47326
+	ㅁ 0882 7157 8191
 3. DANA
-	ㅁ 0887 4350 47326
+	ㅁ 0852 8256 0607
 	
-Semuanya atas nama RI****DI
+Semuanya atas nama Ra**** J*
 
 *📲 PULSA*
 
